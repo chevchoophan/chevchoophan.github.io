@@ -21,7 +21,6 @@
 # Interests
 * Football
 * Car racing
-* 
   
 # Contact Info
 * [Facebook](https://www.facebook.com/profile.php?id=100007952478583&mibextid=LQQJ4d)
